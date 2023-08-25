@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anandjasal3636@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/anand-jasal-aa6836208/](https://www.linkedin.com/in/anand-jasal-aa6836208/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/anandjasal/](https://www.linkedin.com/in/anandjasal/)
 
 - ⚡ Fun fact **I think I'm funny.**
 
